@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Shotcut for PC | Shotcut for Windows plugin with Shotcut for PC | Shotcut for Windows advanced Plugin: green-screen-removal & color-correction. Featuring
 
 
 
